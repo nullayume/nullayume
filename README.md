@@ -1,16 +1,19 @@
-## Hi there 👋
+### <p align="center">   ︶︶ " You are adorable. " ੭ </p>
+ <p align="center">
+  <img width="700" height="700" src="https://i.postimg.cc/fknZXmKz/teveo2.jpg">
+</p>
 
-<!--
-**nullayume/nullayume** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+will make a pt rentry eventually zzz
+
+my name is yuxi or you can call me by ava idrm!
+ 
+17 (2008), she he they, unlabeled, chinese can.
+
+i selfship myself w/ nulla from TEAG and ashveil from HSR. dni if that makes you uncomfy.
+
+i block freely, js dont be weird and stuff yk! ^o^
+
+</div>
