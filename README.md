@@ -3,6 +3,6 @@
 
 <div align="center">
 
-[pronouns.cc (PLEASE READ!)](https://pronouns.cc/@nullva)　;;　[rentry](https://rentry.co/nullq)
+[pronouns.cc (PLEASE READ!)](https://pronouns.cc/@nullva)　;;　[ata](https://rentry.co/nullq)
 
 </div>
